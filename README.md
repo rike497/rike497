@@ -12,4 +12,4 @@ Meu nome é Rikelme Henrique
 
 - @rikelmehenrique
 
-- ![](https://media.tenor.com/i711TDaTPTUAAAAC/naruto.gif)
+![](https://tenor.com/pt-BR/view/%D9%85%D8%A7%D8%AF%D8%A7%D8%B1%D8%A7-gif-24193217)
